@@ -3,16 +3,21 @@
 ## Zutaten (2 Personen)
 
 - 200g Spaghetti
-- 100g Pancetta
-- 2 Eier
-- 50g Parmesan
-- Salz, Pfeffer
+- 100g Guanciale  ← Anna: Guanciale statt Pancetta (authentischer!)
+- 2 Eier + 1 Eigelb
+- 60g Pecorino Romano
+- Salz, schwarzer Pfeffer (grob gemahlen)
 
 ## Zubereitung
 
-1. Pasta in Salzwasser kochen
-2. Pancetta in der Pfanne anbraten
-3. Eier und Parmesan verquirlen
-4. Pasta abgießen, mit Pancetta mischen
-5. Vom Herd nehmen, Ei-Mischung unterrühren
-6. Mit Pfeffer würzen und sofort servieren
+1. Pasta in Salzwasser kochen (al dente!)
+2. Guanciale in der Pfanne langsam knusprig braten
+3. Eier, Eigelb und Pecorino verquirlen
+4. Pasta abgießen, etwas Kochwasser aufbewahren
+5. Pasta mit Guanciale mischen (Pfanne vom Herd!)
+6. Ei-Mischung unterrühren, mit Kochwasser cremig rühren
+7. Mit grobem Pfeffer würzen und sofort servieren
+
+## Annas Tipp
+
+Niemals Sahne! Echte Carbonara wird nur durch Ei und Pasta-Wasser cremig.
